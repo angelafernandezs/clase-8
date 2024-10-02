@@ -1,1 +1,13 @@
 # clase-8
+![portafolio-012](https://github.com/user-attachments/assets/10d2328e-570e-448d-ad20-fd9d010e8840)
+![portafolio-011](https://github.com/user-attachments/assets/e8babc43-b308-4043-914b-2f1440059311)
+![portafolio-010](https://github.com/user-attachments/assets/6deb9b34-d7db-4d37-b646-4bce67c3b636)
+![portafolio-09](https://github.com/user-attachments/assets/ad9d522e-f592-42c0-b5aa-896350e64768)
+![portafolio-08](https://github.com/user-attachments/assets/7a28248c-58c8-4550-bade-5c867c47d6d2)
+![portafolio-07](https://github.com/user-attachments/assets/d78c269f-46d5-45cf-8cd9-a2566a7d9b18)
+![portafolio-06](https://github.com/user-attachments/assets/6dcfde02-1bee-4158-a7d1-56a0a9d3c25a)
+![portafolio-05](https://github.com/user-attachments/assets/035fc45d-318a-497d-9ac8-cd794b44b1f1)
+![portafolio-04](https://github.com/user-attachments/assets/6ca2555b-c387-483a-b3ba-e3c101027497)
+![portafolio-03](https://github.com/user-attachments/assets/dd716c1c-00f4-492a-95f4-014f4ee9fdbb)
+![portafolio-02](https://github.com/user-attachments/assets/3f862e1d-b1c4-469d-af71-896736c5f5f4)
+![portafolio-01](https://github.com/user-attachments/assets/495d07db-df91-4258-9afc-c7e121f3ba58)
